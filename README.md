@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sunilvishnoi774
+- 👋 Hi, I’m @sunilvishnoi
 - 👀 I’m interested in Photography.
 - 🌱 I’m currently learning potrait photography
 - 💞️ I’m looking to collaborate on instagram
